@@ -1,0 +1,1 @@
+# densho-sites-of-shame-data
